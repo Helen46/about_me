@@ -6,7 +6,7 @@
 
 Для родных и друзей просто ***Алёна***.
 
-![](https://sun9-38.userapi.com/impg/hOumvkO36B2YIZiCI775NZy0VPwveVaEo95mcg/ogKqxYZCXhU.jpg?size=1438x1438&quality=96&sign=a7cb40abef86acc30ad281646e28524b&type=album)
+<img src="https://sun9-38.userapi.com/impg/hOumvkO36B2YIZiCI775NZy0VPwveVaEo95mcg/ogKqxYZCXhU.jpg?size=1438x1438&quality=96&sign=a7cb40abef86acc30ad281646e28524b&type=album" width="200" height="200" />
 
 
 ## Главные факты моей биографии
